@@ -1,1 +1,1 @@
-Amatuer Web Developer and GIS Specialist
+Geographer and GIS Developer
