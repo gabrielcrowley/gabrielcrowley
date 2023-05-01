@@ -1,1 +1,1 @@
-Geographer and GIS Developer
+Web Developer and GIS Professional
