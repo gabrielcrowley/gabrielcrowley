@@ -1,1 +1,1 @@
-Web Developer and GIS Professional
+GIS Professional and Software Enthusiast
