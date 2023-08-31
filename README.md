@@ -1,1 +1,1 @@
-GIS Professional and Software Enthusiast
+GIS Professional and Software Hobbyist
